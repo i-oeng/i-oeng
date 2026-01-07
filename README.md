@@ -2,7 +2,7 @@
 - 👀 I’m interested in ML and powerlifting
 - 🌱 I’m currently learning ML on py
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me: imposible 
+- 📫 How to reach me: impossible
 - 😄 Pronouns: non/existent
 - ⚡ Fun fact: I like alt girls 
 
